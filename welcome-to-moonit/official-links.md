@@ -2,7 +2,7 @@
 
 **Website** - [moon.it.com](https://moon.it.com/)
 
-**Telegram** - [t.me/moon\_it\_com](https://t.me/moondotit)
+**Telegram** - [t.me/moonit\_eca](https://t.me/moonit\_eca)
 
 **Twitter** - [x.com/moondotit](https://x.com/moondotit)
 
